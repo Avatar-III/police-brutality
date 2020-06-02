@@ -13,3 +13,10 @@ Police are seen attacking a car and pulling people, including an old woman, out 
 
 **Links**
 * https://twitter.com/cruzzzyc/status/1267185423333199874
+
+### Police tampering with evidence/destroying window | June 1st
+
+Riot police are seen destroying broken window of Naturalizer shoe store (109 S State St)
+
+**Links**
+* https://www.instagram.com/p/CA39H2Tg0xG/
